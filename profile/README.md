@@ -1,3 +1,3 @@
-# Grou
+# Ritmu
 
-Crescer junto, todo dia.
+Todo time no mesmo ritmo.
